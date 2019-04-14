@@ -4,7 +4,7 @@ Participantes, palestrantes, representantes de empresas e pessoas voluntárias d
 
 ### Precisa de ajuda?
 
-Você tem nossos contatos nos contato@gdgpelotas.org e Meetup.
+Você tem nossos contatos nos contato@gdgpelotas.org e [Meetup](https://www.meetup.com/pt-BR/GDG-Pelotas/members/?op=leaders).
 
 ### Versão rápida
 
